@@ -1,1 +1,1 @@
-# An-lisis-Multivariante-Mini-Mental-Test-Examination
+# Analisis-Multivariante-Mini-Mental-Test-Examination
